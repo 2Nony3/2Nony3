@@ -13,4 +13,4 @@ I'm Anthony Mousaoubaa — a Software Engineering student at Concordia Universit
 
 ---
 
-Let's connect and build something awesome together!
+Let's connect and build something impactful together ;)
